@@ -16,3 +16,5 @@ The first of Carlin's 14 stand-up comedy specials for HBO was filmed in 1977. Fr
 * 1977: On the Road (George Carlin album)|On the Road
 * 1981: A Place for My Stuff
 * 1984: Carlin on Campus
+
+> Just cause you got the monkey off your back doesn't mean the circus has left town. *George Carlin*
