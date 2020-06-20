@@ -19,4 +19,4 @@ The first of Carlin's 14 stand-up comedy specials for HBO was filmed in 1977. Fr
 
 > Just cause you got the monkey off your back doesn't mean the circus has left town. *George Carlin*
 
-<img src="https://en.wikipedia.org/wiki/File:George_Carlin_1975_(Little_David_Records)_Publicity.jpg"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/8e/George_Carlin_1975_%28Little_David_Records%29_Publicity.jpg/552px-George_Carlin_1975_%28Little_David_Records%29_Publicity.jpg"/>
